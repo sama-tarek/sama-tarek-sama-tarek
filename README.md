@@ -67,8 +67,8 @@ Here are the types of projects I am currently working on:
 ---
 
 ## 📫 Contact Me
-- 💼 LinkedIn: (add your link here)
-- 📧 Email: (add your email here)
+- 💼 LinkedIn: www.linkedin.com/in/sama-tarek-757536249
+- 📧 Email: samatarek1711@gmail.com
 
 ---
 
